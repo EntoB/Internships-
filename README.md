@@ -1,2 +1,2 @@
-# Internships-
-Little resume for internships 
+Internship Resume 
+Click the Drive link to check my resume.
